@@ -1,11 +1,6 @@
 ---
 layout: post
 title: Could Trump's avoidance of substantial commentary on North Korea signal a shift in the importance of the issue for U.S. foreign policy, or was it a strategic omission?
-subtitle:
-cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/thumb.png
-share-img: /assets/img/path.jpg
-tags: [books, test]
 author: Sharon Simpson
 ---
 Trump's avoidance of substantial commentary on North Korea could reflect multiple layers of strategic thinking or shifting priorities. Here are a few potential interpretations:
