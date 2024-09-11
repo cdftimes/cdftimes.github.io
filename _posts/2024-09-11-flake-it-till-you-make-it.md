@@ -14,3 +14,11 @@ Trump's avoidance of substantial commentary on North Korea could reflect multipl
 4. **Personal Preference or Style**: Trump's approach to foreign policy was often characterized by unconventional methods and a preference for high-profile negotiations and direct engagement. His limited commentary on North Korea could reflect a personal or stylistic choice rather than a significant policy shift.
 
 Each of these angles offers a plausible explanation, and the true motive might combine elements from several of them.
+
+- [https://cdftimes.github.io](https://cdftimes.github.io)
+- [https://www.quora.com/profile/Don-Lam-46](https://www.quora.com/profile/Don-Lam-46)
+- [Quora](https://www.quora.com/Is-the-portrayal-of-Kamala-Harris-alleged-policy-flip-flops-a-risky-strategy-for-Democrats-considering-her-fluctuating-popularity-among-key-voter-blocs)
+- [https://x.com/DonLam83275004](https://x.com/DonLam83275004)
+- [https://www.youtube.com/channel/UClF2ALHoLtHP3GaVYymJwdw](https://www.youtube.com/channel/UClF2ALHoLtHP3GaVYymJwdw)
+- [https://medium.com/@83275004](https://medium.com/@83275004)
+
